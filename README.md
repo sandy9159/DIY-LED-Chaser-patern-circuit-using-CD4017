@@ -86,6 +86,11 @@ like only 2$ for 1 - 4 layer PCB, you will get high quality PCB FROM [JLCPCB](ht
  
  I am very happy and satisfied with the PCB quality I surly go with [JLCPCB](https://jlcpcb.com/IAT ) for my Next PCB order.
  
+and If you register yourself today on [JLCPCB](https://jlcpcb.com/IAT) you will get wellcome coupons worth of 27$ exclusively 
+Now no need to order components 
+separately for you PCB and get free from stress of soldering them on PCB just try PCB SMT assembly service and get you PCB with components pre assembled ready for the project
+Foe more detials & offers please visit [JLCPCB.com](https://jlcpcb.com/IAT)
+
  
 
 
